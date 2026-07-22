@@ -32,7 +32,7 @@ Latexistentialism speaks to practitioners across all life stages, with particula
 
 Latexistentialism is not for everyone. It is a philosophy for elderly individuals with deep rubber fetishes—those for whom this attraction is not mere preference but a profound, defining aspect of self. The practice channels this intrinsic motivation into existential growth. While younger Rubberists may find value in the concepts, Latexistentialism's full power manifests for seniors when the fetish itself becomes the path.
 
-![ElderRubber Dance](assets/images/10-ElderRubber-Dance.jpg)
+![ElderRubber Dance](assets/images/10_ElderRubber_Dance.jpg)
 
 ---
 
