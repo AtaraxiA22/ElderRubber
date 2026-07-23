@@ -25,6 +25,10 @@ Manifesto | Pillar I | Pillar II | Pillar III | Pillar IV | Glossary | **Reading
 **Aristotle** - *Nicomachean Ethics*  
 The concept of **eudaimonia** (flourishing/happiness) as arising from the **pursuit of arete (excellence)** provides the classical foundation for Latexistentialism's understanding of practice. The lifelong quest itself—the practice of pursuing virtue and excellence—becomes the path to fulfillment. This directly informs the Latexistentialism concept of RubberNauting as a practice, where the journey toward an unobtainable goal (the Holy Grail metaphor) gives life direction and meaning.
 
+---
+![ReadingList](assets/images/read.jpg)
+---
+
 ### **Existentialism &amp; Authenticity**
 
 **Camus, Albert** - *The Myth of Sisyphus*, *The Rebel*  
