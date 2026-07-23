@@ -27,6 +27,8 @@ So it is with Latexistentialism. The suit, the gloves, the perfect moment of Rub
 This is the foundation of Nietzschean Defiance: the value lies in the practice, not the achievement.
 
 ---
+![Nietzche](assets/images/p4.jpg)
+---
 
 ## **The Foundation: To Thine Own Self Be True**
 
