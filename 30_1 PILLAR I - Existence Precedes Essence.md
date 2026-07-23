@@ -23,7 +23,8 @@ Manifesto | **Pillar I** | Pillar II | Pillar III | Pillar IV | Glossary | Readi
 Imagine a blank canvas—not white, but a void, a silence, an unmarked expanse of possibility. Philosopher Jean-Paul Sartre called it *existence precedes essence*: we are born without predetermined nature, without a script. We are the canvas, and we must become the painting.
 
 For the deep Rubberist, this canvas is not abstract. It is the body, the mind, the life lived in quiet resistance. And then—there is latex. The first stroke is not color, but *choice*. Reaching for the suit is not selecting a garment. It is selecting a version of oneself that has been waiting in the wings. This is the beginning of Latexistentialism: RubberNauting is not about what one wears, but about *who one becomes* through the wearing.
-
+---
+![Exist](assets/images/p1.jpg)
 ---
 
 ## **Orientation vs. Choice: The Sartrean Distinction**
