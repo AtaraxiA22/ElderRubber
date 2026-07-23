@@ -32,6 +32,8 @@ Manifesto | Pillar I | Pillar II | Pillar III | Pillar IV | **Glossary** | Readi
 
 **Maslow's Mountain** - Abraham Maslow's hierarchy of needs, used metaphorically in ElderRubber to represent the path to self-actualization. The "mountain to climb" in Pillar III.
 
+---
+![Glossary](assets/images/gloss.jpg)
 **Mono Principle, The** - The principle that depth comes from focus. A practitioner who tries to embrace every aspect at once may never truly know any of them. The choice to focus on one aspect of rubber fetish as the center of exploration.
 
 **Neural nirvana (Silva)** - A peak state of consciousness achieved through deep immersion and consciousness design. RubberSpace is the RubberNaut's specific manifestation of this concept.
