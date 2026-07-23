@@ -15,9 +15,6 @@
 [4th Pillar](https://github.com/AtaraxiA22/ElderRubber/blob/main/4th%20PILLAR%20-%20Nietzchean%20Defiance.md) |
 [Reading](https://github.com/AtaraxiA22/ElderRubber/blob/main/5.%20ElderRubber%20Suggested%20Reading.md) |
 [Glossary](https://github.com/AtaraxiA22/ElderRubber/blob/main/6.%20ElderRubber%20Glossary.md)
----
-
-**Manifesto** | Pillar I | Pillar II | Pillar III | Pillar IV | Glossary | Reading List
 
 ---
 
