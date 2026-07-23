@@ -23,6 +23,8 @@ Manifesto | Pillar I | Pillar II | **Pillar III** | Pillar IV | Glossary | Readi
 ElderRubber is about finding meaning in late life. It is the bridge between late-life reality and authentic being. Without it, aging rubber fetishists risk losing connection to their core identity. With it, they transform the waning of sexual passion into the waxing of wisdom, presence, and continued self-actualization. This pillar addresses the unique challenges and opportunities of late-life RubberNauting, where the practice evolves from passion to purpose, from desire to devotion.
 
 ---
+![ElderRubber](assets/images/p3.jpg)
+---
 
 ## **The Waning and the Remaining**
 
