@@ -8,7 +8,7 @@
 
 **SERIES: LATEXISTENTIALISM - THE PRACTICE OF THE FOUR PILLARS**
 
-[Manifesto - README](https://github.com/AtaraxiA22/ElderRubber/blob/main/README.md) | 
+[**MANIFESTO**](https://github.com/AtaraxiA22/ElderRubber/blob/main/README.md) | 
 [1st Pillar](https://github.com/AtaraxiA22/ElderRubber/blob/main/1st%20PILLAR%20-%20Existence%20Precedes%20Essence.md) |
 [2nd Pillar](https://github.com/AtaraxiA22/ElderRubber/blob/main/2nd%20PILLAR%20-%20Zen%20of%20Rubber.md) |
 [3rd Pillar](https://github.com/AtaraxiA22/ElderRubber/blob/main/3rd%20%20PILLAR%20-%20ElderRubber.md) |
