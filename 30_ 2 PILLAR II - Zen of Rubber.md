@@ -29,6 +29,8 @@ This is the Zen of Rubber—not a practice you perform, but an **attitude** you 
 This is rubber-sensualization: seeing the world through latex, where the suit's presence against skin overwhelms the somatic senses and reveals the sacred in the mundane—the perceptual shift that can lead to RubberSpace.
 
 ---
+![Watts](assets/images/p2.jpg)
+---
 
 ## **The Heart of Latexistentialism**
 
